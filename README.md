@@ -2,8 +2,8 @@
 
 - 💻 Trabalho atualmente com ti no exercito brasileiro
 - ✍🏼 Estudando atualmente mais cybersecurity
-- 📫 Discord: MEC#8053
-- 📷 Intagram: instagram.com/mec_vjtz/
+- 🛫 Brasil 021
+- 🎂 19y  05/11
 
 <div align="left">
   <a href="https://github.com/mecbds">
